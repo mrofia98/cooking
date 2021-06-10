@@ -1,1 +1,1 @@
-# mrofia98.github.com/cooking
+# mrofia98.github.io/cooking
